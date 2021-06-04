@@ -1,4 +1,4 @@
-# RPG-Gabriel-e-Eduarda
+# RPG Rei dos Monstros
 
 Atividade destaque de sala de aula
 
