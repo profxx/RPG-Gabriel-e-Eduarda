@@ -1,4 +1,4 @@
-# RPG Rei dos Monstros
+# RPG Rei dos Monstros (King of Monsters)
 
 Atividade destaque de sala de aula
 
